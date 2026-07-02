@@ -1,4 +1,4 @@
-[Live Link](https://hbdtenrptqpnltha-8080.ws4.app/)
+[Live Link](https://salan-shop.bytexl.live/)
 
 # Salon Shop Business Overview
 
